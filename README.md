@@ -1,4 +1,4 @@
-### Hallo please no look at my ridiculous account
+### Your friendly neighbourhood capybara
 
 <!--
 **Capybara787/Capybara787** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
